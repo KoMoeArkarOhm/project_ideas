@@ -1,0 +1,66 @@
+# Project Ideas
+
+- Advertisements: create an advertising campaign to sell a product.  The product can be real or imaginary.  Try using this to teach persuasion, as an assignment for speech class, or to reinforce skills learned in a consumer class.
+- Album Covers: create artwork for an album.  The album may be connected to a skill (such a multiplication) and should demonstrate or explain how that skill is used.  Or the album cover may be connected to a novel and the art work might present a relevant theme in the story.  Another use would be to have students create natural disaster album covers in a science class where the cover would depict and explain the event.
+- Autobiographies: write the story of your life.  This assignment may help you teach autobiography or reinforce a broad range of  writing skills.
+- Awards: create awards to present to historical figures, scientists, mathematicians, authors, or characters from a novel.
+- Banners: create an informational banner.  Students could create time lines of the American civil war or the Spanish alphabet.
+- Bar Graphs: create illustrated bar graphs.  These may be used to explore data sets, use statistics to support a point, or illustrate a growth or change in a market.
+- Biographies: write the life story of someone else.  It could be a friend, family member, historical figure, or a fictional character.
+- Blogs: create blogs for literary characters or historical figures.  Create an actual blog for free at blogger.com or just have students write and organize articles on white printer paper if the internet is not available.
+- Blueprints: create blueprints or floor plans of a scene described in a novel, an historic setting, or an earthquake proof bridge or structure.
+- Boardgames: create boardgames where students review course concepts.  Game play should be based around answering review questions correctly.
+- Book Clubs: Students read either novels or selections from the text book and discuss the readings in small groups.  Students might be required to take notes about the discussion or provide an audio recording of the discussion as the artifact to be evaluated.  Students might also create discussion questions beforehand and have these approved by the instructor.  This activity may be applied to reading selections in any subject.
+- Booklets: create an informational booklet.  In the past I’ve had students create booklets showing comma rules, narrator’s perspective, genre, figurative language, and more.  Booklets can be applied to almost any unit of study and all they require to make are some blank white printer paper folded in half, one of my favorites.
+- Bookmarks: create illustrated bookmarks with relevant information.  A bookmark might summarize previous chapters or contain the definitions of challenging vocabulary words.
+- Brochures: brochures can be made as either tri-fold or bi-folds. Students can create informational brochure’s about geographic locations, a story’s setting, or a natural event such as how a tidal wave is formed or how the food chain works.
+- Calendars: create a calendar charting the dates of key events.  This can be applied to an historical event (like a famous battle), a scientific event (such a the path of Hurricane Katrina), or the sequence of events in story.
+- Casting Calls: select people (fictional, famous, or otherwise) to play the role in a movie version of story or historic event.  Explain which character traits were considered in each selection.
+- Cheers: create a cheer explaining a scientific or mathematical process.  Alternately, a cheer could summarize the events of a novel or an historic episode.
+- Classified Ads: create classified type ads as seen in newspapers.  It could be a wanted ad or a M4F type ad depending on the age of your students.  Update the concept and have students create Craigslist ads or Ebay listings.  Example applications include covering vocabulary words, introducing multiple characters in a drama, examining figures in an historical event, or studying endangered and extinct plants and animals.
+- Coat of Arms: create a family coat of arms for a character from a novel or a person from history.  A good activity for teaching symbolism.
+- Collages: create a collage or collection of images related to a topic.  Images can be hand drawn, printed, or clipped from a magazine or newspaper.  These work best with large thematic ideas that give students the ability to maneuver, like a collage representing slavery, the 1920s,  or an entire story.
+- Comic Strips or Books: create an illustrated comic strip or book representing events from history or a work of fiction.
+- Crossword Puzzles: create a crossword puzzle to review definitions of challenging vocabulary words.  Great for science, social studies, reading, and even math terms.
+- Diary Entries: create a diary entries for a person from history or a fictional character who experienced an historic event.  Can also be applied to characters in a story or survivors of a disaster.
+- Dramas: create a play.  Students might adapt an existing story or create original works and plays can be centered around any event in history.
+- Editorials: provide an opinion about a hot topic in history or science.  Should the space program be reduced?  Is US military intervention in current conflicts appropriate?  Is global warming a concern?
+- Fables: create fables that teach a lesson.  Students may create illustrated story boards of their original fables or even dramatic adaptations which they then perform.  A good character building activity.
+- Flags: create a flag representing either an actual county (like Libya)  or fictitious place (like Narnia).  This project should be accompanied by a brief report explaining what ideas the colors and images on the flags represent.
+- Flash Cards: create cards helpful for study and review.  Flash cards can be created for any subject and topic.
+- Flowcharts: students create flowcharts analyzing and representing a mathematical process, a natural event, or an event in history or literature.
+- Glossaries: If students need to understand a large array of vocabulary words, consider having them construct glossaries to help them study and review.
+- Hieroglyphics: create pictures that represent vocabulary words.  Alternately, students could retell the events of a story or historical episode in simple pictures.
+- ID Badges: create identification cards for characters from a work of literature or for people involved in an historical event.  Include relevant details on the badges.
+- Illustrated Quotes: Have students choose a meaningful quote from a text that they are reading.  They should explain why the quote interests them and then write the quote on a blank sheet of paper and draw related images.
+- Instructions: write instructions on how to perform an operation or experiment, diagram a sentence, or start a World War.
+- Inventions: create and illustrate your new invention that address a problem in nature or society.  Address environmental or sociological issues.
+- Limericks: write limericks about events from history or scientific discoveries such as, “There once was a man named Sir Newton…”
+- Magazines: create magazines covering large units of study such as the Industrial Revolution or Darwin’s Theory of Evolution, that way many articles can be written.  Images may also be drawn or printed and added to the publication.
+- Maps: create maps based on actual geographic or national boundaries and landmarks or maps illustrating the setting of a story and the journey of a character.
+- Merit Badges: create vocabulary merit badges where the term is defined in three or fewer words and a small image is drawn to represent the definition.
+- Movie Adaptations: plan a movie version of a novel, scientific discovery, or historical event.  Pick who will play what role, plan scenes, write dialog, even create a soundtrack.
+- Murals: create a mural or a large drawing of many images related to a larger idea.  A mural about the Harlem Renaissance might contain images of Langston Hughes,Â  Countee Cullen, and W.E.B. DuBois.
+- Myths: write creation myths to account for scientific or historic events or for a creative writing assignment.
+- Newscasts: deliver important information from literature, history, science, or math in the form of a newscast.  Newscast can be prerecorded or presented live.
+- Pen-pals: write letters to and from important people from history or the characters in a story.
+- Poems and Raps: write a poem or rap reviewing any topic.
+- Postcards: similar to the pen-pals assignment above, but postcards have illustrations representing thematic concepts.
+- Posters: create posters to review skills.  As a bonus, many of these posters can often be displayed during state tests, so if your students create high quality posters, the posters may be a useful resource during the test.
+- Questionnaires: create a questionnaire and survey students to gather an understanding about thematic issues from a text or social problems for a speech or presentation.
+- Radio Broadcasts: create a script for a radio program covering any appropriate field of study.
+- Reader’s Theater: silently act out the events of a story or text alone or with a group of people while someone reads the text aloud.  Students should be given time to prepare their acting.
+- Recipes: students can create recipes about how atoms combine to form molecules (H2O), or how to create events like the French Revolution or World War I (add one Arch Duke).
+- Scrapbooks: create a scrapbook of your favorite poems or important events from a decade.
+- Skits: create a short skit to bring an historical event to life.
+- Slide Shows: if you have access to enough computers and a projector, I suggest having students create PowerPoint presentations.  With just a little instruction, students should be able to create pretty flashy presentations, and you can combine this project with a research paper as a culminating activity.
+- Soundtracks: create a soundtrack for a movie version of a novel or historical or natural event.  Use actual songs or just describe the mood of each song if you do not know song titles.  Explain why you feel that each song matches the event.  A good activity to review mood.
+- Stamps: students create commemorative stamps honoring people, depicting elements from the periodic table, or challenging vocabulary terms.
+- Storyboards: create story boards summarize a short story or to plan a narrative, movie, or presentation.
+- Tests: write a test to help you review unit goals and objectives.  Questions can be multiple choice, matching, and true or false.  Answer keys should be provided.
+- Vocabulary Quilts: create quilts with badges representing the meanings of vocabulary terms.  Badges should have an image and a few words.
+- Websites: design websites that historical figures, scientists, mathematicians, authors, or characters from novels would have had.  Also, student can create websites for historical movements, scientific theories, or literary concepts.
+- Worksheets: create review worksheets.  Worksheets can be applied to any subject and topic of study.
+- Yearbooks: create yearbooks reviewing the characters and events from several stories that the class read or containing information about many important figures from history.
+
+I hope this list of project ideas will prove to be a valuable resource in creating projects for your students or children.  Feel free to share any of your ideas below in the comments and thank you for visiting.
