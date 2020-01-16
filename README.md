@@ -1,6 +1,6 @@
 # project_ideas
 
-
+## Computer Science Project Ideas
 - Voice based E-mail for the Blind
 - A Railway Anti-Collision System with Auto-Track Changing and Phis Plate Removal Sensing
 - Computer Folders ‘Security with a Bluetooth-Enabled Mobile Phone and Rinjdal Security Extension
@@ -33,3 +33,37 @@
 - Travelling Salesman and Genetic Algorithm Problem Using ATL COM and C#
 - Channel Rate Allocation for Scalable Video Streaming Using Genetic Algorithm over Error-Prone Networks Based on GOP
 - High Speed Face Recognition Based on RBF Neural Networks and Discrete Cosine Transform.
+
+## Computer Science Project Ideas
+
+- Storage Systems Based HBA Distributed Meta Data Management for large Cluster
+- Image Analysis and Compression with PSNR and MSE Technique
+- Implementation of Threshold Cryptography for MANET Based on Elliptic Curve Cryptography
+- Image Processing for Resizing and Bilinear Filters
+- Architecture of Distributed Database in Next Generation Mobile Networks for Global Roaming
+- Recognition of Dynamic Pattern and Character Using Neural Networks
+- Customer Relationship Management Based on Distributed Component Router
+- Supply Chain Management System Based on Distributed Component Router
+- Dynamic Logistics Management and Support Systems
+- Multithreaded Socket Based Email Server
+- Design and implementation of Mobile Banking
+- JMX Based Managing and Monitoring the Clusters
+- Implementation of Multi Router Traffic Monitoring
+- Real Time Transmission Protocol Based Broadcasting of Multicast Video
+- Multicast Routing For Collaborative Applications with Delay Variation Constrains On Overlay Networks
+- Near-Optimal Multicast Scheme Using a Hybrid Genetic Algorithm for Hoc and Mobile Networks
+- SNMP Based Network Monitoring and Analyzer Tool
+- Network Border Patrol for Promoting Fairness in the Internet and Preventing Congestion Collapse
+- Recognition of Digits Back Propagation and Handwritten Based on Neural Network
+- Novel Framework for Personalized Retrieval and Semantic Annotation of Sports Video
+- Query Workload Based Online Index Recommendations of High Dimensional Data Bases
+- Image Retrieval Imaging Based on Content, Adaptive and Personal
+- Software and Algorithms for problems in Radiation Therapy and Radio Surgery and Medical Applications
+- Bluetooth and J3ME Enabled Full Duplex Automation Based on Mobile
+- Development of an Application for Weekly Automatic College Timetable
+- Using Pythagoras and Trigonometry to Watermark an Image
+- By Using Steganography Compression and Decompression of Wavelet
+- Coded Structured Light Based Real Time 3-D Data Processing
+- A Distributed Learning System with Desktop recording, VoIP, Desktop Sharing and Session Sharing.
+- A Wireless Communication Protocol Based on Electric Bulb
+- Musical Conversion and Recognition for Music Compression
